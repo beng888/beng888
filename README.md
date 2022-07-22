@@ -2,4 +2,4 @@
 - 👀 I’m interested in learning new technologies
 - 🌱 I’m continuosly learning new stuffs
 - 💞️ I’m looking for a fully remote work that leverages my skills
-- 📫 You can reach me through linked in (https://www.linkedin.com/in/lawrence-jason-ardosa-470250176/)
+- 📫 You can reach me through (https://www.linkedin.com/in/lawrence-ardosa/)
